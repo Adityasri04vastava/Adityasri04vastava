@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Adityasri04vastava
+- 👀 I’m interested in ...frontend and backend web-development
+- 🌱 I’m currently learning ... frontend web development
+- 📫 How to reach me ...mail id-yaadit95@gmail.com
+- currently I am completing my BE in computer science and engneering from chandigrah university<2023-2027>
+- 
